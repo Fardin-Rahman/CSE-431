@@ -11,7 +11,7 @@ Link to the paper:
 http://www.ijpe-online.com/EN/10.23940/ijpe.22.08.p2.545551
 
 Group Number:
-12 
+12
 
 Individual Submitter:
 20101549 Md Fardin Rahman Ami
